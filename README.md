@@ -10,4 +10,3 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with college subject
 - 💬 Ask me about how to surf
 - 📫 How to reach me: cyscyb@naver.com
--->
